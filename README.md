@@ -1,1 +1,2 @@
 Jazmia Cornell
+cornellj@oregonstate.edu
